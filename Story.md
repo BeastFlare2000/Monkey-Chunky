@@ -1,0 +1,2 @@
+There once was a boy named Lory. He had a friend named Gory.
+Gory and Lory fought a monster named Fory. Gory and Lory defeated Fory. Then Fory's brother Mory smacked Gory. Gory went ;(. Lory smacked Mory and defeated Mory. Then Lory and Gory went home.

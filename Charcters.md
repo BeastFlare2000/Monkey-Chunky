@@ -1,0 +1,4 @@
+Lory
+Fory
+Gory
+Mory
