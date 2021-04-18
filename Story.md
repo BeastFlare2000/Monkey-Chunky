@@ -1,2 +1,2 @@
-There once was a boy named Lory. He had a friend named Gory.
-Gory and Lory fought a monster named Fory. Gory and Lory defeated Fory. Then Fory's brother Mory smacked Gory. Gory went ;(. Lory smacked Mory and defeated Mory. Then Lory and Gory went home.
+Monkey Gungy ate a Chunky. He ate the Chunky and became Monkey Chunky. WhitehatJR Captured Monkey Chunky.
+AND MADE HIM INTO AN APP. They now teach how to make Monkey Chunky because they are so proud of capturing him. Now my teacher Teacher Sakshi is tecahing me how to create a Monkeyt Chunky of my own. (But I will release him once im done heheheheheheheheh).
